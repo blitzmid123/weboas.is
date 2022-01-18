@@ -1,7 +1,7 @@
 # weboas.is
 Archive of Weboas.is to keep alive | RIP Webby 1992-2022 
 
-January 05, 2022, 01:47:04 am
+<p>January 05, 2022, 01:47:04 am</p>
 Admin (Owner of Weboas.is)
 
 If you’re reading this, than its already too late. Life is a game that I can’t seem to win lately and I'm tired of losing. I know I'm not the first to feel this way. It's time for a new strategy. I just need to get away from this world forever. Clearly I’m not compatible. I'm sorry to my friends and family that will have to find me like this, but it's the only way forward. I’ve been at a low point in my life the past two months and don’t foresee it getting any better. In fact it seems to be spiraling out of control even more.
