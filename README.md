@@ -19,7 +19,9 @@ To the individual(s) in real life that are trying to ruin me, congratulations, y
 Goodbye <3 Webby
 
 DOWNLOAD SOURCE:
-https://mega.nz/file/oMliRaxC#Fb-7HAm4mn9HtdTCkMFZlalsIRfZTWFohn9bkqIV2dI
-https://bayfiles.com/B72fi559x5/weboasis_zip
-https://www.solidfiles.com/v/4YLKyzDxWLW4G
-https://x0.at/u6lC.zip
+<ul>
+  <li>https://mega.nz/file/oMliRaxC#Fb-7HAm4mn9HtdTCkMFZlalsIRfZTWFohn9bkqIV2dI</li>
+  <li>https://bayfiles.com/B72fi559x5/weboasis_zip</li>
+  <li>https://www.solidfiles.com/v/4YLKyzDxWLW4G</li>
+  <li>https://x0.at/u6lC.zip</li>
+</ul>
